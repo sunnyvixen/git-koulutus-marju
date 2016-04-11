@@ -6,6 +6,6 @@ Tehdäänpä conflikti!
 
 Hhäääähähä
 
-Muut pysykööt poissa!
+Täällä ollaan.
 
 Ja ihan turha yrittääkään mitään!  Ja sit vielä, et kivaa päivää teillekin!
