@@ -8,4 +8,7 @@ Hhäääähähä
 
 Täällä ollaan.
 
+Muut pysykööt poissa! Mä teen eka muutoksen!
+
+
 Ja ihan turha yrittääkään mitään!  Ja sit vielä, et kivaa päivää teillekin!
